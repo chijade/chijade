@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @chijade
+- 👋 Hi, I’m @arcanumT
 - 👀 I’m interested in art, fintech and poetry
 - 🌱 I’m currently learning trading
 - 💞️ I’m looking to collaborate on various sectors
