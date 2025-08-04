@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @arcanumT
-- 👀 I’m interested in art, fintech and poetry
-- 🌱 I’m currently learning trading
+- 👀 I’m interested in art, biotech and poetry
+- 🌱 I’m currently learning trading & biology
 - 💞️ I’m looking to collaborate on various sectors
 - 📫 How to reach me tranjade83@gmail.com
 
